@@ -1,0 +1,1 @@
+Simple Temple for CC
